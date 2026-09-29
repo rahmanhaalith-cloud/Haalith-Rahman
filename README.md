@@ -20,4 +20,6 @@
 
 ---
 
-🤝 **Let's Connect:** [LinkedIn](https://linkedin.com/in/your-linkedin-username)
+🤝 **Let's Connect:** [LinkedIn]www.linkedin.com/in/
+haalith-rahman
+
